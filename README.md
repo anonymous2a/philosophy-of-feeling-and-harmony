@@ -1,8 +1,8 @@
 # The Inviolability of Feeling: On Compassion, Resilience, and Harmony
 # Die Unantastbarkeit des Fühlens: Über Mitgefühl, Resilienz und Harmonie
 
-A bilingual philosophical reflection on the power of emotion, systemic desensitization, and the reality of human connection.
-Eine zweisprachige philosophische Reflexion über die Kraft von Emotionen, systemische Abstumpfung und die Realität menschlicher Verbundenheit.
+A bilingual philosophical reflection on the power of emotion, systemic desensitization, and the reality of connection.
+Eine zweisprachige philosophische Reflexion über die Kraft von Emotionen, systemische Abstumpfung und die Realität von Verbundenheit.
 
 ---
 
